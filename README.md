@@ -267,3 +267,7 @@ or Aragan gearswap support server https://discord.gg/RUBknQ52JZ
 Aragan Epic music ffxi Album
 https://soundcloud.com/araganffxi
 
+Addon discord server
+
+https://discord.gg/HrnbfuQ4hw
+
